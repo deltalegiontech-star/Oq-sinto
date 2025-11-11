@@ -264,7 +264,7 @@ Vc é o motivo de eu ainda querer estar aqui. Vc é o motivo de eu ter escolhido
 
 Mas eu tenho medo. Medo de falhar. Medo de não ser suficiente. Medo de perder vc. Pq amar vc é a coisa mais bonita q já aconteceu cmg. E perder isso… seria como perder o pouco que ainda me resta.
 
-Msm assim, eu vou sempre tentar lutar. Por nós. Por vc. Por tudo q ainda podemos viver. Pq vc me ensinou q o amor não precisa ser perfeito, mas sim verdadeiro. mas vc me mostrou q é possível ser perfeito e verdadeiro. E o meu por você é o amor mais verdadeiro q se poderia sentir... 🥺💖
+Msm assim, eu vou sempre tentar lutar. Por nós. Por vc. Por tudo q ainda podemos viver. Pq vc me ensinou q o amor não precisa ser perfeito, mas sim verdadeiro, mas vc me mostrou q é possível ser perfeito e verdadeiro. E o meu por você é o amor mais verdadeiro q se poderia sentir... 🥺💖
 
 Se um dia vc duvidar. No meu outro pulso tem um recado... NEOQEAV. Tbm olha pra tudo q eu sou quando estou com vc. E lembra: eu não só te amo.  
 EU TE VIVO 🥺💖
